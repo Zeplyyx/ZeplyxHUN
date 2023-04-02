@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @ZeplyxHUN
-- 👀 I’m interested in cats
-- 📫 How to reach me Zeplyx#1234
+- 👋 Hi, I’m @Zeplyx
+- 👀 I’m interested in your mom
+- 📫 How to reach me Zeplyx#1337
