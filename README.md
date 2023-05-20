@@ -1,2 +1,3 @@
-![pfp](https://github.com/ZeplyxHUN/ZeplyxHUN/assets/116741312/cadc74ab-34b5-42cd-ab43-a7bb178e17f2)
+![banner](https://github.com/ZeplyxHUN/ZeplyxHUN/assets/116741312/9886cd1c-a001-44c4-8cce-d9b4cfb865ed)
+
 
